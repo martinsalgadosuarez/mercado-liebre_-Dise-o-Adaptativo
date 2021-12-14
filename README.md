@@ -1,1 +1,1 @@
-# mercado-liebre_Dise-o-Adaptativo
+# mercado-liebre_Diseño Adaptativo
